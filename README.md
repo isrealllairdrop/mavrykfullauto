@@ -1,7 +1,7 @@
 # MAVRYK FULL AUTO
 
 ## FOR VIP @AirdropFamilyIDN. Need PM me
-Membership dapat akses tools & BOT untuk mempermudah garapan airdrop, testnet & belajar.
+Membership dapat akses tools & BOT untuk mempermudah garapan airdrop, testnet & belajar, bisa Open Jastip Bot di Channel lain atau di FB
 #
 
 PM me : [TELEGRAM](https://t.me/Isrealll1)
