@@ -1,6 +1,8 @@
 # MAVRYK FULL AUTO
 
 ## FOR VIP @AirdropFamilyIDN. Need PM me
+Membership dapat akses tools & BOT untuk mempermudah garapan airdrop, testnet & belajar.
+#
 
 PM me : [TELEGRAM](https://t.me/Isrealll1)
 
